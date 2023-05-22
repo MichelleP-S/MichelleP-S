@@ -1,3 +1,5 @@
+![White Blue Simple Watercolour Etsy Shop Cover](https://github.com/MichelleP-S/MichelleP-S/assets/104833826/7ae1ab9f-d402-44b8-8ae5-ab8caeaf1dbc)
+
 ### Hi I am Michelle, welcome to my GitHub 👋
 
 I am a highly motivated and detail-oriented professional with certifications in data analytics. 
